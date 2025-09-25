@@ -1,1 +1,4 @@
 # Industrializaci-n-y-crecimiento-de-los-Estados-Unidos
+Desde principios de este siglo la economía americana es la primera del mundo, tanto por el volumen de su producción como por la productividad de su industria. Este éxito merece una atención particular y nos invita a investigar las causas y las características esenciales de la industrialización de los Estados Unidos. El 3 de septiembre de 1783, el Tratado de Versalles permitía acceder a la independencia a las trece colonias americanas de Inglaterra.
+Since the beginning of this century, the American economy has been the world’s largest, both in terms of production volume and industrial productivity. This success deserves particular attention and invites us to examine the causes and essential features of the industrialization of the United States. On September 3, 1783, the Treaty of Versailles granted independence to the thirteen American colonies of England. 
+
